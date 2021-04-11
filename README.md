@@ -197,4 +197,4 @@ if you want to find a way, look better!
 \
 \
 \
-200
+строка 200
