@@ -21,6 +21,7 @@ if you want to find a way, look better!
 \
 \
 \
+ROT
 \
 \
 \
@@ -196,5 +197,5 @@ if you want to find a way, look better!
 \
 \
 \
-\
-строка 200
+строка 24 
+frrn://ypeskclrsy.amk/qgrcq/bcdysjr/dgjcq/gkyecayafc/Dsjj_rciqr_600v/yprgajc/116125.hne
