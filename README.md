@@ -197,5 +197,5 @@ ROT
 \
 \
 \
-строка 24 24
+строка 24 -24
 frrn://ypeskclrsy.amk/qgrcq/bcdysjr/dgjcq/gkyecayafc/Dsjj_rciqr_600v/yprgajc/116125.hne
