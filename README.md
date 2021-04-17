@@ -201,4 +201,6 @@ ROT
 \
 -24
 \
+проиграватель
+\
 frrn://ypeskclrsy.amk/qgrcq/bcdysjr/dgjcq/gkyecayafc/Dsjj_rciqr_600v/yprgajc/116125.hne
